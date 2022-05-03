@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on Indonesia
 - 📫 How to reach me you can contact me via WhatsApp and email.
                          😑
-my whatsapp:http://wa.me/+6287707444801
-My email: azrilzackyperdana@gmail.com
+whatsapp:http://wa.me/+6287707444801
+email: azrilzackyperdana@gmail.com
 
 <!---
 Meguminz/Meguminz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
